@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **devhelp107@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1nTKn0cepC0liRhEyRf8xcS_UtOWLKl_m/view?usp=sharing](https://drive.google.com/file/d/1nTKn0cepC0liRhEyRf8xcS_UtOWLKl_m/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1nTKn0cepC0liRhEyRf8xcS_UtOWLKl_m/view?usp=sharing](https://drive.google.com/file/d/12d6yvaz0oFnZ8f0_E6IRt8X8iZtMUznm/view?usp=drive_link)
 
 - ⚡ Fun fact **I am Funny 😂**
 
