@@ -10,7 +10,7 @@
 
 - 💬 Ask me about **HTML||CSS||Tailwind||JavaScript||Nodejs||React||Express.js||MongoDB**
 
-- 📫 How to reach me **aashishashu712@gmail.com**
+- 📫 How to reach me **ashishashu712@gmail.com**
 
 - 📄 Know about my experiences (Resume) [https://drive.google.com/file/d/1nTKn0cepC0liRhEyRf8xcS_UtOWLKl_m/view?usp=sharing](https://drive.google.com/file/d/13ketFzb2IQh47_N7AGEVmI0LRoF3DVrk/view?usp=sharing)
 
